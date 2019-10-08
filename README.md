@@ -1,0 +1,2 @@
+# Jakkolwiek
+Moje repo NikodemPE
